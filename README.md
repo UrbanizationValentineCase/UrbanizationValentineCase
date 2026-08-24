@@ -23,7 +23,8 @@
 ✦  I Write poems, novels. I also do love to draw/paint.
 
 
-> [!CAUTION] I REPORT FREELY. I will freely report you whenever you: Are a minor in 18+ server; Spread huge rumors; threat me/my friends/anyone else that clearly does not deserve; publish fake info about someone and ruin their reputation; act EXTREMLY weird.
+> [!CAUTION]
+> I REPORT FREELY. I will freely report you whenever you: Are a minor in 18+ server; Spread huge rumors; threat me/my friends/anyone else that clearly does not deserve; publish fake info about someone and ruin their reputation; act EXTREMLY weird.
 
 ## DNI !!   ┈┈┈┈┈┈┈┈
 
