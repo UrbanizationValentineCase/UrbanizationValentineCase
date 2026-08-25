@@ -32,7 +32,7 @@ UNDER 16. But 16 yo-s please IWEC.  +   Basic DNI criteria. Pedo, problematic, c
 
 ## 𝗙𝗔𝗡𝗗𝗢𝗠𝗦
 
-• SIKAYD
+• SIKAYD/MCYT
 • TFC
 • The Mimic
 • Pressure
