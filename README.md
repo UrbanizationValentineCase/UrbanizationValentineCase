@@ -28,7 +28,7 @@
 
 ## DNI !!   ┈┈┈┈┈┈┈┈
 
-UNDER 16. But 16 yo-s please IWEC.  +   Basic DNI criteria. Pedo, problematic, creepy behaviour, racist, etc
+UNDER 16. But 16 yo-s please IWEC.  +   Basic DNI criteria. Such as Pedos, problematic, creepy behaviour, racist, sexist etc
 
 ## 𝗙𝗔𝗡𝗗𝗢𝗠𝗦
 
@@ -40,7 +40,7 @@ UNDER 16. But 16 yo-s please IWEC.  +   Basic DNI criteria. Pedo, problematic, c
 
 • Pressure
 
-• Pico's school (maybe FNF as well)
+• Pico's school
 
 • Resident Evil
 
@@ -49,3 +49,5 @@ UNDER 16. But 16 yo-s please IWEC.  +   Basic DNI criteria. Pedo, problematic, c
 • Animal Hospital
 
 • ALNST
+
+• SVTFOE
