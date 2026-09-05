@@ -10,7 +10,7 @@
    
    -Usually quiet at first.
    
-✦   HUGE LOOKOUT3D & GROXMC LOVER
+✦   HUGE LOOKOUT3D & GROXMC LOVER (once again, I will explain. I don't support anything Lookout did, I just simply separate the art from artist. I don't have anything to do with his irl self or accept/support what LookOut did.)
 
 ✦  If we have met before I don't mind cuddling. If I disappear It's probably because of my job.
 
