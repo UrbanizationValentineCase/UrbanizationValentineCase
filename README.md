@@ -18,7 +18,7 @@
 
 ✦  Ships IWEC please. As I might not accept a lot of ships or dynamics.
   
-✦  Suffers from depression + severe trauma.
+✦  Suffers from depression + severe trauma. So PLEASE be patient.
 
 ✦  I Write poems, novels. I also do love to draw/paint.
 
