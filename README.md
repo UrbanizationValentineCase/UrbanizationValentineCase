@@ -44,7 +44,9 @@ UNDER 16. But 16 yo-s please IWEC.  +   Basic DNI criteria. Such as Pedos, probl
 
 ## 𝐂𝐨𝐦𝐟𝐨𝐫𝐭 𝐂𝐡𝐚𝐫𝐚𝐜𝐭𝐞𝐫𝐬 !
    ∧,,∧^ ,, ∧
+   
  (  _  _ )⩊^ ) ♡
+ 
  /      ⊂      \         
 
 ✦ LookOut3D, GroxMC, FroggyDudeMC, Twixxel // MCYT //. Cornelia, Sheepy // Piggy //. Pierrot, Columbina // The Freak Circus //. Sebastian // Pressure //. Shelly, Vee, Ginger, Sprout // Dandy's World //. Foxy, Mangle, Funtime Foxy, LolBit, Roxanne Wolf // FNAF //. Enzukai, Yurei, Isamu // The Mimic //.
