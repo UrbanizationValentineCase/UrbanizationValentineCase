@@ -1,7 +1,13 @@
 <img width="2756" height="1516" alt="632145415-ef4900fa-0f57-4638-bc52-3af4c17afc44" src="https://github.com/user-attachments/assets/f2e41b4b-3248-4e9f-b8ee-9189742e4345" />
 
+<p align="center">
+$\color{#ffa67a}{``𝘿𝙤~𝙮𝙤𝙪~𝙗𝙚𝙡𝙞𝙚𝙫𝙚~𝙞𝙣~𝙡𝙤𝙫𝙚~𝙖𝙩~𝙛𝙞𝙧𝙨𝙩~𝙨𝙞𝙜𝙝𝙩?~𝘿𝙤~𝙮𝙤𝙪~𝙗𝙚𝙡𝙞𝙚𝙫𝙚~𝙞𝙣~𝙛𝙖𝙩𝙚?``}$ 
+</p>
+<p align="center">
+$\color{#67596a}{``𝙄~𝙗𝙚𝙡𝙞𝙚𝙫𝙚~𝙩𝙝𝙖𝙩~𝙜𝙤𝙤𝙙~𝙩𝙝𝙞𝙣𝙜𝙨~𝙊𝙣𝙡𝙮~𝙘𝙤𝙢𝙚~𝙩𝙤~𝙩𝙝𝙤𝙨𝙚~𝙬𝙝𝙤~𝙬𝙖𝙞𝙩``}$
+ 
 
-## 𝘼𝘽𝙊𝙐𝙏 𝘾𝙍𝙀𝘼𝙏𝙊𝙍 · · ─ · ☁︎ · ─ · · ADULT. - 19 on November !!
+## $\color{#857c91}{ 𝘼𝘽𝙊𝙐𝙏 𝘾𝙍𝙀𝘼𝙏𝙊𝙍 · · ─ · ☁︎ · ─ · · ADULT. - 19~~on~November !!}$
  
  
 ✦  Hi there, you could call me Seb, or however you know me as. I go by He/Him or They/Them is ok too !!
@@ -10,7 +16,7 @@
    
    -Usually quiet at first.
    
-✦   HUGE LOOKOUT3D & GROXMC LOVER (once again, I will explain. I don't accept/support anything Lookout did. IF it turns out to be true. )
+✦   HUGE LOOKOUT3D & GROXMC LOVER (Once again, I will explain. I don't accept/support anything Lookout did. IF it turns out to be true.)
 
 ✦  If we have met before I don't mind cuddling. If I disappear It's probably because of my job.
 
@@ -46,4 +52,8 @@ UNDER 16. But 16 yo-s please IWEC.  +   Basic DNI criteria. Such as Pedos, probl
 
 ✦ LookOut3D, GroxMC, FroggyDudeMC, Twixxel // MCYT //. Cornelia, Sheepy // Piggy //. Pierrot, Columbina // The Freak Circus //. Sebastian // Pressure //. Shelly, Vee, Ginger, Sprout // Dandy's World //. Foxy, Mangle, Funtime Foxy, LolBit, Roxanne Wolf // FNAF //. Enzukai, Yurei, Isamu // The Mimic //.
 
-<img width="500" height="288" alt="1041uuu" src="https://github.com/user-attachments/assets/4a798404-e87c-4187-bbe8-2c6e8dbb6326" />
+<img width="500" height="288" alt="1041uuu" src="https://github.com/user-attachments/assets/07803fac-84ec-4c5f-868a-50c556a08ce8" />
+
+<img width="1149" height="200" alt="isnt mine again haha" src="https://github.com/user-attachments/assets/ff225d84-1658-4aff-9bb5-e1998eda9b57" />
+
+<img width="534" height="534" alt="4ae3c6b89870ceaefa822b25190f8873" src="https://github.com/user-attachments/assets/ff2e5df7-d3cf-48e5-ad2b-fe915f1e231b" />
