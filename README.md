@@ -7,7 +7,7 @@ $\color{#ffa67a}{``𝘿𝙤~𝙮𝙤𝙪~𝙗𝙚𝙡𝙞𝙚𝙫𝙚~𝙞𝙣~�
 $\color{#67596a}{``𝙄~𝙗𝙚𝙡𝙞𝙚𝙫𝙚~𝙩𝙝𝙖𝙩~𝙜𝙤𝙤𝙙~𝙩𝙝𝙞𝙣𝙜𝙨~𝙊𝙣𝙡𝙮~𝙘𝙤𝙢𝙚~𝙩𝙤~𝙩𝙝𝙤𝙨𝙚~𝙬𝙝𝙤~𝙬𝙖𝙞𝙩``}$
  
 
-## $\color{#857c91}{ 𝘼𝘽𝙊𝙐𝙏~𝘾𝙍𝙀𝘼𝙏𝙊𝙍 · · ─ · ☁︎ · ─ · · ADULT. - 19~~on~November !!}$
+## $\color{#857c91}{ 𝘼𝘽𝙊𝙐𝙏 `𝘾𝙍𝙀𝘼𝙏𝙊𝙍 · · ─ · ☁︎ · ─ · · ADULT. - 19~~on~November !!}$
  
  
 ✦  Hi there, you could call me Seb, or however you know me as. I go by He/Him or They/Them is ok too !!
