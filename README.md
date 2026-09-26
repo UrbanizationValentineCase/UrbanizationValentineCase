@@ -54,6 +54,3 @@ UNDER 16. But 16 yo-s please IWEC.  +   Basic DNI criteria. Such as Pedos, probl
 
 <img width="500" height="288" alt="1041uuu" src="https://github.com/user-attachments/assets/07803fac-84ec-4c5f-868a-50c556a08ce8" />
 
-<img width="1149" height="200" alt="isnt mine again haha" src="https://github.com/user-attachments/assets/ff225d84-1658-4aff-9bb5-e1998eda9b57" />
-
-<img width="534" height="534" alt="4ae3c6b89870ceaefa822b25190f8873" src="https://github.com/user-attachments/assets/ff2e5df7-d3cf-48e5-ad2b-fe915f1e231b" />
