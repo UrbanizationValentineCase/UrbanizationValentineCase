@@ -40,7 +40,6 @@ $\color{#67596a}{``𝙄~𝙗𝙚𝙡𝙞𝙚𝙫𝙚~𝙩𝙝𝙖𝙩~𝙜𝙤�
 
 UNDER 16. But 16 yo-s please IWEC.  +   Basic DNI criteria. Such as Pedos, problematic, creepy behaviour, racist, sexist etc
 
-<img width="600" height="450" alt="download (2)" src="https://github.com/user-attachments/assets/c102e957-7667-4770-acfa-262d073ddb83" />
 
 ## 𝗙𝗔𝗡𝗗𝗢𝗠𝗦
 
