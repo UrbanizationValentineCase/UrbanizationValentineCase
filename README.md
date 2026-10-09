@@ -53,7 +53,19 @@ UNDER 16. But 16 yo-s please IWEC.  +   Basic DNI criteria. Such as Pedos, probl
 
 (˵◝ ⩊  ◜˵マ ♡
 
-✦ LookOut3D, GroxMC, FroggyDudeMC, Twixxel // MCYT //. Cornelia, Sheepy // Piggy //. Pierrot, Columbina // The Freak Circus //. Sebastian // Pressure //. Shelly, Vee, Ginger, Sprout // Dandy's World //. Foxy, Mangle, Funtime Foxy, LolBit, Roxanne Wolf // FNAF //. Enzukai, Yurei, Isamu // The Mimic //.
+✦ LookOut3D, GroxMC, FroggyDudeMC, Twixxel // MCYT //
+
+. Cornelia, Sheepy // Piggy //
+
+. Pierrot, Columbina // The Freak Circus //
+
+. Sebastian // Pressure //
+
+. Shelly, Vee, Ginger, Sprout // Dandy's World //
+
+. Foxy, Mangle, Funtime Foxy, LolBit, Roxanne Wolf // FNAF //
+
+. Enzukai, Yurei, Isamu // The Mimic //
 
 <img width="500" height="288" alt="1041uuu" src="https://github.com/user-attachments/assets/07803fac-84ec-4c5f-868a-50c556a08ce8" />
 
