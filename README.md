@@ -24,11 +24,12 @@ $\color{#67596a}{``𝙄~𝙗𝙚𝙡𝙞𝙚𝙫𝙚~𝙩𝙝𝙖𝙩~𝙜𝙤�
 
 ✦  Ships IWEC please. As I might not accept a lot of ships or dynamics.
   
-✦  Suffers from depression + severe trauma. So PLEASE be patient.
+✦  Suffers from depression + severe trauma. So PLEASE be patient. PTSD.
 
 ✦  I Write poems, novels. I also do love to draw/paint.
 
 ✦ Art College Student !
+
 
 <p align="center">
 $\color{#6bo733}{✦~ATHEIST.}$ 
