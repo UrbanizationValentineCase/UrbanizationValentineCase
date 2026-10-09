@@ -30,6 +30,15 @@ $\color{#67596a}{``𝙄~𝙗𝙚𝙡𝙞𝙚𝙫𝙚~𝙩𝙝𝙖𝙩~𝙜𝙤�
 
 ✦ Art College Student !
 
+✦ Favorite Movies: 
+
+ .  The Black Phone (first and second one)
+    
+ .  All Quiet On The Western Front
+
+ .  Pet Sematary (2019)
+
+ .  All Of Us Are Dead
 
 <p align="center">
 $\color{#6bo733}{✦~ATHEIST.}$ 
