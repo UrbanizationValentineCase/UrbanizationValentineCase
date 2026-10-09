@@ -16,7 +16,7 @@ $\color{#67596a}{``𝙄~𝙗𝙚𝙡𝙞𝙚𝙫𝙚~𝙩𝙝𝙖𝙩~𝙜𝙤�
    
    -Usually quiet at first.
    
-✦   HUGE LOOKOUT3D & GROXMC LOVER (Once again, I will explain. I don't accept/support anything Lookout did. IF it turns out to be true.)
+✦   HUGE LOOKOUT3D & GROXMC LOVER (If worried about LookOut3D situation, The other document is posted on his discord server !)
 
 ✦  If we have met before I don't mind cuddling. If I disappear It's probably because of my job.
 
