@@ -51,7 +51,9 @@ $\color{#6bo733}{✦~ATHEIST.}$
 
 ## DNI !!   ┈┈┈┈┈┈┈┈
 
-UNDER 16. But 16 yo-s please IWEC.  +   Basic DNI criteria. Such as Pedos, problematic, creepy behaviour, racist, sexist etc
+UNDER 16. But 16 yo-s please IWEC.  +   Basic DNI criteria. 
+
+Such as Pedos, This is such a disgusting one. ; problematic, creepy behavior; racist, even as a joke, DNI. ; sexist; trying to get into a relationship with me out of nowhere// I take relationships as a serious topic. So there's NO chance You'll see me flirting with you even as a joke.
 
 
 ## 𝗙𝗔𝗡𝗗𝗢𝗠𝗦
