@@ -44,6 +44,8 @@ $\color{#67596a}{``𝙄~𝙗𝙚𝙡𝙞𝙚𝙫𝙚~𝙩𝙝𝙖𝙩~𝙜𝙤�
 $\color{#6bo733}{✦~ATHEIST.}$ 
 </p>
 
+✦ Projects I'm working on : " Somewhere Between The Stars: Finding My Own Path " ; " SIKAYD: The Last Vein " ; The Novel " Cherry " .
+
 > [!CAUTION]
 > I REPORT FREELY. I will freely report you whenever you: Are a minor in 18+ server; Spread huge rumors; threat me/my friends/anyone else that clearly does not deserve; publish fake info about someone and ruin their reputation; act EXTREMLY weird.
 
