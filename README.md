@@ -5,20 +5,22 @@ $\color{#ffa67a}{``𝘿𝙤~𝙮𝙤𝙪~𝙗𝙚𝙡𝙞𝙚𝙫𝙚~𝙞𝙣~�
 </p>
 <p align="center">
 $\color{#67596a}{``𝙄~𝙗𝙚𝙡𝙞𝙚𝙫𝙚~𝙩𝙝𝙖𝙩~𝙜𝙤𝙤𝙙~𝙩𝙝𝙞𝙣𝙜𝙨~𝙊𝙣𝙡𝙮~𝙘𝙤𝙢𝙚~𝙩𝙤~𝙩𝙝𝙤𝙨𝙚~𝙬𝙝𝙤~𝙬𝙖𝙞𝙩``}$
- 
 
-## $\color{#857c91}{ 𝘼𝘽𝙊𝙐𝙏 `𝘾𝙍𝙀𝘼𝙏𝙊𝙍 · · ─ · ☁︎ · ─ · · ADULT. - 19~~on~November !!}$
+<p align="center"> $\color{#0c011f}{✦}$
  
+<p align="center"> $\color{#2b0128}{✦}$
  
-✦  Hi there, you could call me Seb, or however you know me as. I go by He/Him or They/Them is ok too !!
+<p align="center"> $\color{#6d0122}{✦}$
+ 
+ <img align="right" width="400" src="https://github.com/user-attachments/assets/2c2f5daf-61fd-4839-81a4-479069cfd8b0" style="margin-right: 25px;" />  $\color{#ec0123}{\textsf{!  ✦   Hello There, You could call me Seb .}}$
+ 
+  $\color{#ab0120}{\textsf{✦ He/Him / They/Them }}$
 
-   -Metalhead!! (I go for both heavy makeup and less makeup)
-   
-   -Usually quiet at first.
-   
+ $\color{#ac7a99}{\textsf{✦ Metalhead  .   ATHEIST ! }}$
+</p>
+
+
 ✦   HUGE LOOKOUT3D & GROXMC LOVER (If worried about LookOut3D situation, The other document is posted on his discord server !)
-
-✦  If we have met before I don't mind cuddling. If I disappear It's probably because of my job.
 
 ✦  You'll find me in both 18+ and safe servers !!
 
@@ -39,10 +41,6 @@ $\color{#67596a}{``𝙄~𝙗𝙚𝙡𝙞𝙚𝙫𝙚~𝙩𝙝𝙖𝙩~𝙜𝙤�
  .  Pet Sematary (2019)
 
  .  All Of Us Are Dead
-
-<p align="center">
-$\color{#6bo733}{✦~ATHEIST.}$ 
-</p>
 
 ✦ Projects I'm working on : " Somewhere Between The Stars: Finding My Own Path " ; " SIKAYD: The Last Vein " ; The Novel " Cherry " .
 
