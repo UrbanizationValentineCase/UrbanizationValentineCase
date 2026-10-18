@@ -12,7 +12,7 @@ $\color{#67596a}{``𝙄~𝙗𝙚𝙡𝙞𝙚𝙫𝙚~𝙩𝙝𝙖𝙩~𝙜𝙤�
  <img align="right" width="450" src="https://github.com/user-attachments/assets/2c2f5daf-61fd-4839-81a4-479069cfd8b0" />
 <h4 align="center"> $\color{#ec0123}{\textsf{!  ✦   Hello There, You could call me Seb .}}$
 <h5 align="center"> $\color{#ab0120}{\textsf{✦ He/Him / They/Them }}$
-<h5 align="center"> $\color{#ab0120}{\textsf{✦ 8teen. }}$
+<h5 align="center"> $\color{#7e5a61}{\textsf{✦ 8teen. }}$
 <h5 align="center">  $\color{#ac7a99}{\textsf{✦ Metalhead  .   ATHEIST ! }}$
 </h5></h5></h5></br>
 
