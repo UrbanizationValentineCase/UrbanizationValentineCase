@@ -41,11 +41,11 @@ $\color{#67596a}{``𝙄~𝙗𝙚𝙡𝙞𝙚𝙫𝙚~𝙩𝙝𝙖𝙩~𝙜𝙤�
 <h5 align="left"> $\color{#7e5a61}{\textsf{ Anomaly Cafe, FNAF: Co-op, TPRR, Twenty One,}}$
 <h5 align="left"> $\color{#7e5a61}{\textsf{ Wonderland, BuckShot, Horse Life.}}$
 <h5 align="left"> $\color{#7e5a61}{\textsf{ - Other : Minecraft, Resident Evil, Silent Hill, Among The Sleep,}}$
-<h5 align="left"> $\color{#7e5a61}{\textsf{TattleTail,Bad Parenting, MouthWashing,}}$
+<h5 align="left"> $\color{#7e5a61}{\textsf{TattleTail, Bad Parenting, MouthWashing, The First Tree,}}$
 <h5 align="left"> $\color{#7e5a61}{\textsf{ Five Nights At Freddy's, Bendy And The Ink Machine,}}$
 <h5 align="left"> $\color{#7e5a61}{\textsf{Shelter 2, Cult Of The Lamb, The Freak Circus, She Wants Me Dead}}$
-<h5 align="left"> $\color{#7e5a61}{\textsf{ , Undertale/Deltarune, Stray, Cuphead,  Identity V.}}$
-
+<h5 align="left"> $\color{#7e5a61}{\textsf{Undertale/Deltarune, Stray, Cuphead,  Identity V.}}$
+<h5 align="left"> $\color{#7e5a61}{\textsf{Alien Stage, Date a Live, Yan Sim}}$
  
 <img width="2048" alt="68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f39343232303938663639396634376562323938346536613465653233306139382f663739323637343862393432646232652d38342f733230343878333037322f3436613131623437303265636133316" src="https://github.com/user-attachments/assets/b3939da3-bf04-4e24-b7a1-e67f53dd2b9f" />
 
@@ -59,7 +59,7 @@ $\color{#67596a}{``𝙄~𝙗𝙚𝙡𝙞𝙚𝙫𝙚~𝙩𝙝𝙖𝙩~𝙜𝙤�
 <h5 align="left">$\color{#a0126e}{\textsf{Cornelia, Sheepy, Dimitry ( Piggy ); Pierrot, Columbina ( The Freak Circus);}}$
 <h5 align="left">$\color{#a0126e}{\textsf{ Shelly, Vee, Ginger ( Dandy's World );}}$
 <h5 align="left">$\color{#a0126e}{\textsf{Foxy, Mangle, Funtime Foxy, LolBit, Roxanne Wolf ( FNAF )}}$
-<h5 align="left">$\color{#a0126e}{\textsf{ukai, Yurei, Isamu ( The Mimic )}}$
+<h5 align="left">$\color{#a0126e}{\textsf{Enukai, Yurei, Isamu ( The Mimic )}}$
  
 <h3 align="center"> 
 <img width="800"  alt="68747470733a2f2f66696c65732e636174626f782e6d6f652f6371656269622e676966" src="https://github.com/user-attachments/assets/8b4d3463-d91b-4052-ad0a-06e85df4f918" />
