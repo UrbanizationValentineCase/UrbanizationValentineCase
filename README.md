@@ -29,6 +29,7 @@ $\color{#67596a}{``𝙄~𝙗𝙚𝙡𝙞𝙚𝙫𝙚~𝙩𝙝𝙖𝙩~𝙜𝙤�
 <h5 align="center"> $\color{#ec0123}{\textsf{I am afk most of time. So it's better to Whisper}}$
 <h5 align="center"> $\color{#ec0123}{\textsf{I may sound rude sometimes, It's out of habit but don't take it to heart.}}$
 <h5 align="center"> $\color{#ec0123}{\textsf{Tone Tags are preferable.}}$
+<h5 align="center"> $\color{#ec0123}{\textsf{Roleplays depends on mood + with who AND as who.}}$
 <h5 align="center"> $\color{#ec0123}{\textsf{DON'T Friend me if I don't know you.}}$
 
 
